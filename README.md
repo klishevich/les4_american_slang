@@ -1,6 +1,6 @@
 # 40 American Slang Words and Phrases You Need to Know
 
-1. **Feeling blue; have the blues** — A feeling of depression or sadness - Скучать или быть в депрессии
+1. **Feeling blue; have the blues** — A feeling of depression or sadness - **Скучать или быть в депрессии**
 1. **Bail** — Intransitive verb for leaving abruptly.
 1. **A buck** — Slang term for a the American dollar.
 1. **By the skin of (my/your/his/her) teeth** — just barely.
