@@ -2,10 +2,10 @@
 
 1. **Feeling blue; have the blues** — A feeling of depression or sadness - **Скучать или быть в депрессии**
 1. **Bail** — Intransitive verb for leaving abruptly.
-1. **A buck** — Slang term for a the American dollar.
+1. **A buck** — Slang term for a the American dollar. - **Сленговое выражение для Американского доллора**
 1. **By the skin of (my/your/his/her) teeth** — just barely.
-1. **Creep (n.)** —  An unpleasantly weird/strange person.
-1. **Couch Potato** — A lazy person who spends the bulk of their time engaged in things that can be done while sitting on a couch.
+1. **Creep (n.)** —  An unpleasantly weird/strange person. - **Неприятно страннный человек**
+1. **Couch Potato** — A lazy person who spends the bulk of their time engaged in things that can be done while sitting on a couch.-**Ленивый человек, который проводит большую часть времени, занимаясь вещами, которые можно выполнить сидя на диване**
 1. **Cram** — To study feverishly before an exam typically done after neglecting to study consistently.
 1. **Crash** — To abruptly fall  asleep, or to show up without invitation.
 1. **Down to earth** — And adjective for practicality and lack of pretense.
