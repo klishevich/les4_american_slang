@@ -9,9 +9,9 @@
 1. **Cram** — To study feverishly before an exam typically done after neglecting to study consistently.
 1. **Crash** — To abruptly fall  asleep, or to show up without invitation.
 1. **Down to earth** — And adjective for practicality and lack of pretense.
-1. **Drive up the wall** — To irritate. - **Раздражать**
-1. **For Real** — A proclamation of honesty. - **Провозглашение честности**
-1. **Going Dutch** — When each person, usually in a dating scenario, pays for his/her own meal. - **Когда каждый человек, обычно в случае свидания, платит сам/сама за свою еду.** 
+1. **Drive up the wall** — To irritate. - ***Раздражать***
+1. **For Real** — A proclamation of honesty. - ***Провозглашение честности***
+1. **Going Dutch** — When each person, usually in a dating scenario, pays for his/her own meal. - ***Когда каждый человек, обычно в случае свидания, платит сам/сама за свою еду.*** 
 1. **The cold shoulder** — A metaphor for deliberately ignoring someone.
 1. **Give a ring** — To call someone on the telephone.
 1. **Hyped (adj.)** — A very excited state.
