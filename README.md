@@ -8,12 +8,12 @@
 1. **Couch Potato** — A lazy person who spends the bulk of their time engaged in things that can be done while sitting on a couch.-**Ленивый человек, который проводит большую часть времени, занимаясь вещами, которые можно выполнить сидя на диване**
 1. **Cram** — To study feverishly before an exam typically done after neglecting to study consistently.
 1. **Crash** — To abruptly fall  asleep, or to show up without invitation.
-1. **Down to earth** — And adjective for practicality and lack of pretense.
+1. **Down to earth** — And adjective for practicality and lack of pretense. **приземленный**
 1. **Drive up the wall** — To irritate. - **Раздражать**
 1. **For Real** — A proclamation of honesty. - **Провозглашение честности**
 1. **Going Dutch** — When each person, usually in a dating scenario, pays for his/her own meal. - **Когда каждый человек, обычно в случае свидания, платит сам/сама за свою еду.** 
 1. **The cold shoulder** — A metaphor for deliberately ignoring someone.
-1. **Give a ring** — To call someone on the telephone.
+1. **Give a ring** — To call someone on the telephone. **Позвонить кому-то** 
 1. **Hyped (adj.)** — A very excited state.
 1. **Hang out** — To casually gather together or spend time with someone in a social manner.
 1. **Jack up** — An abrupt increase, typically in the price of something.
@@ -27,7 +27,7 @@
 1. **Sweet** — An adjective that describes something that is good, or nice.
 1. **Tight** — An adjective that describes closeness between competitors, i.e. a tight competition.
 1. **Trash** — Can be used as an intransitive verb for destruction. e.g. “He trashed the car.”
-1. **Uptight** — Stuffy, persnickety, the opposite of relaxed.
+1. **Uptight** — Stuffy, persnickety, the opposite of relaxed. **встревоженный** 
 1. **Wrap (something) up** — To finish or complete something.
 1. **Zonked** — Completely exhausted.Our next post will cover British slang terms that Americans find confusing. Until then, here are some of our favorite American slang words:
 1. **Pants** — CLOTHING RETAILERS TAKE NOTE: The Brits say ‘trousers’ … The American default word for the article of clothing that covers the legs and pelvic region seems pretty general and innocuous to English speakers in the U.S. To the actual English, however, ‘pants’ is the primary word they use for ‘underwear.’ And while American cinema and television typically writes the word ‘knickers’ for underwear into the vocabulary of British characters—that’s probably just for comedic effect since ‘pants’ wouldn’t induce any response—the most common British word for underwear really is ‘pants.’ Americans tend not to notice how often they refer to their so-called pants until someone from the U.K. joins their ranks. Once that happens they begin to notice restrained snickering every time ‘pants’ are referenced in a polite conversation.
