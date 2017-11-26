@@ -2,6 +2,7 @@
 
 1. **Feeling  blue; have the blues** — A feeling of depression or sadness - **Скучать или быть в депрессии**
 1. **Bail** — Intransitive verb for leaving abruptly.
+	**Непереходный глагол для внезапного ухода**
 1. **A buck** — Slang term for a the American dollar. - **Сленговое выражение для Американского доллора**
 1. **By the skin of (my/your/his/her) teeth** — just barely. - **Еле-еле / едва**
 1. **Creep (n.)** —  An unpleasantly weird/strange person. - **Неприятно страннный человек**
@@ -17,6 +18,7 @@
 1. **Hyped (adj.)** — A very excited state. - **Возбужденное состояние**
 1. **Hang out** — To casually gather together or spend time with someone in a social manner.
 1. **Jack up** — An abrupt increase, typically in the price of something.
+**Резкое увеличение, как правило, в цене чего-то.**
 1. **Knock** — To speak negatively, to disparage, to badmouth.
 1. **Lighten up** — To relax and take things too seriously. Typically stated as an appeal to someone who is acting uptight.
 1. **Pass the buck** — To deflect responsibility onto someone else.
@@ -31,6 +33,7 @@
 1. **Wrap (something) up** — To finish or complete something.
 1. **Zonked** — Completely exhausted.Our next post will cover British slang terms that Americans find confusing. Until then, here are some of our favorite American slang words:
 1. **Pants** — CLOTHING RETAILERS TAKE NOTE: The Brits say ‘trousers’ … The American default word for the article of clothing that covers the legs and pelvic region seems pretty general and innocuous to English speakers in the U.S. To the actual English, however, ‘pants’ is the primary word they use for ‘underwear.’ And while American cinema and television typically writes the word ‘knickers’ for underwear into the vocabulary of British characters—that’s probably just for comedic effect since ‘pants’ wouldn’t induce any response—the most common British word for underwear really is ‘pants.’ Americans tend not to notice how often they refer to their so-called pants until someone from the U.K. joins their ranks. Once that happens they begin to notice restrained snickering every time ‘pants’ are referenced in a polite conversation.
+**ОЖЕРТВЫЕ РОЗНИЧНИКИ ПРИНИМАЮТ ЗАМЕЧАНИЕ: Бриты говорят «брюки» ... Американское слово по умолчанию для предмета одежды, которое покрывает ноги и область таза, кажется довольно общим и безобидным для англоговорящих в США. Однако на самом английском языке «брюки», это основное слово, которое они используют для «нижнего белья». И хотя американское кино и телевидение обычно пишут слово «трусики» для нижнего белья в словарь британских персонажей - это, вероятно, только для комедийного эффекта, поскольку «брюки» не будут вызывать никакого ответа - самым распространенным британским словом для нижнего белья действительно является «брюки». Американцы обычно не замечают, как часто они относятся к их так называемым штанам, пока кто-то из Великобритании не присоединится к своим рядам. Как только это происходит, они начинают замечать сдержанное хихиканье каждый раз, когда «штаны» упоминаются в вежливом разговоре.**
 1. **For the birds** — Imagine how this phrase must sound to someone who doesn’t understand that it refers to something that is substandard in some respect. Is it a bag of seeds or some kind of yard ornament reference? The Brits sometimes use the word ‘bird,’ to refer to women, in the same way Americans use ‘chicks.’ So, maybe it comes off like reference to girlishness. Who knows?
 1. **Bought the farm** — ”I didn’t know he wanted to move to the country,” is how a British person might respond to hearing this phrase. At this point ‘bought the farm,’ is a general reference to untimely death. However, the phrase originates from WWII-era military accidents involving unreliable aircraft crashing into rural European countryside properties resulting in damages for which the U.S. government was responsible to pay, thereby, ‘buying the farm,’ so to speak.
 1. **Jonesing** — To want, crave, or desire something intensely, and its noun form, ‘joneser,’ (a person who wants or craves something intensely), isn’t always apparent even to Americans. The Oxford Dictionary associates this word’s slang usage with Jones Alley in Manhattan, a haven for drug addicts in the 1960s. The unsavory drug culture connotations continue today. However the definition of ‘joneser,’ has been broadened among some circles to include describing a person whose character is found wanting, i.e. lacking, as opposed to someone who simply wants something desperately.
