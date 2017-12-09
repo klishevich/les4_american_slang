@@ -21,9 +21,9 @@
 **Резкое увеличение, как правило, в цене чего-то.**
 1. **Knock** — To speak negatively, to disparage, to badmouth.
 1. **Lighten up** — To relax and take things too seriously. Typically stated as an appeal to someone who is acting uptight.
-1. **Pass the buck** — To deflect responsibility onto someone else.
-1. **Piece of cake** — A metaphor to describe something that is easy or effortless.
-1. **Pig out** — A metaphor for binge eating.
+1. **Pass the buck** — To deflect responsibility onto someone else. ***Спихнуть ответственность***
+1. **Piece of cake** — A metaphor to describe something that is easy or effortless . ***Легкотня***
+1. **Pig out** — A metaphor for binge eating.  ***Обжорство***
 1. **Plead the fifth** — References the fifth amendment to the U.S. Constitution, which allows a witness in court to refuse questions on the grounds that they risk self-incrimination.
 1. **Screw up** — To make a mistake, i.e. mess up.
 1. **Sweet** — An adjective that describes something that is good, or nice.
