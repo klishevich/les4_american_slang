@@ -9,7 +9,7 @@
 1. **Couch Potato** — A lazy person who spends the bulk of their time engaged in things that can be done while sitting on a couch.-**Ленивый человек, который проводит большую часть времени, занимаясь вещами, которые можно выполнить сидя на диване**
 1. **Cram** — To study feverishly before an exam typically done after neglecting to study consistently.
 1. **Crash** — To abruptly fall  asleep, or to show up without invitation. - **Внезапно, без приглашения**
-1. **Down to earth** — And adjective for practicality and lack of pretense.
+1. **Down to earth** — And adjective for practicality and lack of pretense.**Наречие, обозначающее практичность, отсуствие притворства - Приземленный, не витает в облаках, спуститься на землю**
 1. **Drive up the wall** — To irritate. - ***Раздражать***
 1. **For Real** — A proclamation of honesty. - ***Провозглашение честности***
 1. **Going Dutch** — When each person, usually in a dating scenario, pays for his/her own meal. - ***Когда каждый человек, обычно в случае свидания, платит сам/сама за свою еду.*** 
@@ -25,8 +25,8 @@
 1. **Piece of cake** — A metaphor to describe something that is easy or effortless . ***Легкотня***
 1. **Pig out** — A metaphor for binge eating.  ***Обжорство***
 1. **Plead the fifth** — References the fifth amendment to the U.S. Constitution, which allows a witness in court to refuse questions on the grounds that they risk self-incrimination.
-1. **Screw up** — To make a mistake, i.e. mess up. **Допустить ошибку**
-1. **Sweet** — An adjective that describes something that is good, or nice.
+1. **Screw up** — To make a mistake, i.e. mess up. **Допустить ошибку, облажаться, напортачить**
+1. **Sweet** — An adjective that describes something that is good, or nice. **Что-то хорошее или красивое - милый, симпатичный**
 1. **Tight** — An adjective that describes closeness between competitors, i.e. a tight competition.
 1. **Trash** — Can be used as an intransitive verb for destruction. e.g. “He trashed the car.”
 1. **Uptight** — Stuffy, persnickety, the opposite of relaxed. **Встревоженный**
