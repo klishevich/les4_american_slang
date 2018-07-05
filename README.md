@@ -6,7 +6,7 @@
 1. **A buck** — Slang term for a the American dollar. - **Сленговое выражение для Американского доллора**
 1. **By the skin of (my/your/his/her) teeth** — just barely. - **Еле-еле / едва**
 1. **Creep (n.)** —  An unpleasantly weird/strange person. - **Неприятно страннный человек**
-1. **Couch Potato** — A lazy person who spends the bulk of their time engaged in things that can be done while sitting on a couch.-**Ленивый человек, который проводит большую часть времени, занимаясь вещами, которые можно выполнить сидя на диване**
+1. **Couch Potato** — A lazy person who spends the bulk of their time engaged in things that can be done while sitting on a couch.-**Ленивый человек, который проводит большую часть времени, занимаясь вещами, которые можно выполнить сидя на диване** - *Лежебока*
 1. **Cram** — To study feverishly before an exam typically done after neglecting to study consistently.
 1. **Crash** — To abruptly fall  asleep, or to show up without invitation. - **Внезапно, без приглашения**
 1. **Down to earth** — And adjective for practicality and lack of pretense.**Наречие, обозначающее практичность, отсуствие притворства - Приземленный, не витает в облаках, спуститься на землю** - Приземленный
