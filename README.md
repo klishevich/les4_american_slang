@@ -6,12 +6,12 @@
 1. **A buck** — Slang term for a the American dollar. - **Сленговое выражение для Американского доллора**
 1. **By the skin of (my/your/his/her) teeth** — just barely. - **Еле-еле / едва**
 1. **Creep (n.)** —  An unpleasantly weird/strange person. - **Неприятно страннный человек**
-1. **Couch Potato** — A lazy person who spends the bulk of their time engaged in things that can be done while sitting on a couch.-**Ленивый человек, который проводит большую часть времени, занимаясь вещами, которые можно выполнить сидя на диване**
+1. **Couch Potato** — A lazy person who spends the bulk of their time engaged in things that can be done while sitting on a couch.-**Ленивый человек, который проводит большую часть времени, занимаясь вещами, которые можно выполнить сидя на диване** - *Лежебока*
 1. **Cram** — To study feverishly before an exam typically done after neglecting to study consistently.
 1. **Crash** — To abruptly fall  asleep, or to show up without invitation. - **Внезапно, без приглашения**
-1. **Down to earth** — And adjective for practicality and lack of pretense.**Наречие, обозначающее практичность, отсуствие притворства - Приземленный, не витает в облаках, спуститься на землю**
-1. **Drive up the wall** — To irritate. - ***Раздражать***
-1. **For Real** — A proclamation of honesty. - ***Провозглашение честности***
+1. **Down to earth** — And adjective for practicality and lack of pretense.**Наречие, обозначающее практичность, отсуствие притворства - Приземленный, не витает в облаках, спуститься на землю** - Приземленный
+1. **Drive up the wall** — To irritate. - ***Раздражать*** - Прижать к стене
+1. **For Real** — A proclamation of honesty. - ***Провозглашение честности*** - Серьезно
 1. **Going Dutch** — When each person, usually in a dating scenario, pays for his/her own meal. - ***Когда каждый человек, обычно в случае свидания, платит сам/сама за свою еду.*** 
 1. **The cold shoulder** — A metaphor for deliberately ignoring someone.
 1. **Give a ring** — To call someone on the telephone. **Позвонить по телефону**
@@ -31,7 +31,7 @@
 1. **Trash** — Can be used as an intransitive verb for destruction. e.g. “He trashed the car.”
 1. **Uptight** — Stuffy, persnickety, the opposite of relaxed. **Встревоженный**
 1. **Wrap (something) up** — To finish or complete something.
-1. **Zonked** — Completely exhausted.Our next post will cover British slang terms that Americans find confusing. Until then, here are some of our favorite American slang words:
+1. **Zonked** — Completely exhausted .Our next post will cover British slang terms that Americans find confusing. Until then, here are some of our favorite American slang words: -*** ошалевший***
 1. **Pants** — CLOTHING RETAILERS TAKE NOTE: The Brits say ‘trousers’ … The American default word for the article of clothing that covers the legs and pelvic region seems pretty general and innocuous to English speakers in the U.S. To the actual English, however, ‘pants’ is the primary word they use for ‘underwear.’ And while American cinema and television typically writes the word ‘knickers’ for underwear into the vocabulary of British characters—that’s probably just for comedic effect since ‘pants’ wouldn’t induce any response—the most common British word for underwear really is ‘pants.’ Americans tend not to notice how often they refer to their so-called pants until someone from the U.K. joins their ranks. Once that happens they begin to notice restrained snickering every time ‘pants’ are referenced in a polite conversation.
 **ОЖЕРТВЫЕ РОЗНИЧНИКИ ПРИНИМАЮТ ЗАМЕЧАНИЕ: Бриты говорят «брюки» ... Американское слово по умолчанию для предмета одежды, которое покрывает ноги и область таза, кажется довольно общим и безобидным для англоговорящих в США. Однако на самом английском языке «брюки», это основное слово, которое они используют для «нижнего белья». И хотя американское кино и телевидение обычно пишут слово «трусики» для нижнего белья в словарь британских персонажей - это, вероятно, только для комедийного эффекта, поскольку «брюки» не будут вызывать никакого ответа - самым распространенным британским словом для нижнего белья действительно является «брюки». Американцы обычно не замечают, как часто они относятся к их так называемым штанам, пока кто-то из Великобритании не присоединится к своим рядам. Как только это происходит, они начинают замечать сдержанное хихиканье каждый раз, когда «штаны» упоминаются в вежливом разговоре.**
 1. **For the birds** — Imagine how this phrase must sound to someone who doesn’t understand that it refers to something that is substandard in some respect. Is it a bag of seeds or some kind of yard ornament reference? The Brits sometimes use the word ‘bird,’ to refer to women, in the same way Americans use ‘chicks.’ So, maybe it comes off like reference to girlishness. Who knows?
