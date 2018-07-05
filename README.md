@@ -13,7 +13,7 @@
 1. **Drive up the wall** — To irritate. - ***Раздражать***
 1. **For Real** — A proclamation of honesty. - ***Провозглашение честности***
 1. **Going Dutch** — When each person, usually in a dating scenario, pays for his/her own meal. - ***Когда каждый человек, обычно в случае свидания, платит сам/сама за свою еду.*** 
-1. **The cold shoulder** — A metaphor for deliberately ignoring someone.-**Метафора для умышленного игнорирования кого-то.**
+1. **The cold shoulder** — A metaphor for deliberately ignoring someone.-**Метафора для умышленного игнорирования кого-то.** 1
 1. **Give a ring** — To call someone on the telephone. **Позвонить по телефону**
 1. **Hyped (adj.)** — A very excited state. - **Возбужденное состояние**
 1. **Hang out** — To casually gather together or spend time with someone in a social manner. -**Небрежно собираться вместе или проводить время с кем-то в социальной манере.**
