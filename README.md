@@ -16,7 +16,7 @@
 1. **The cold shoulder** — A metaphor for deliberately ignoring someone.
 1. **Give a ring** — To call someone on the telephone. **Позвонить по телефону**
 1. **Hyped (adj.)** — A very excited state. - **Возбужденное состояние**
-1. **Hang out** — To casually gather together or spend time with someone in a social manner.
+1. **Hang out** — To casually gather together or spend time with someone in a social manner. ***Тусоваться***
 1. **Jack up** — An abrupt increase, typically in the price of something.
 **Резкое увеличение, как правило, в цене чего-то.**
 1. **Knock** — To speak negatively, to disparage, to badmouth.
@@ -28,9 +28,9 @@
 1. **Screw up** — To make a mistake, i.e. mess up. **Допустить ошибку, облажаться, напортачить**
 1. **Sweet** — An adjective that describes something that is good, or nice. **Что-то хорошее или красивое - милый, симпатичный**
 1. **Tight** — An adjective that describes closeness between competitors, i.e. a tight competition.
-1. **Trash** — Can be used as an intransitive verb for destruction. e.g. “He trashed the car.”
+1. **Trash** — Can be used as an intransitive verb for destruction. e.g. “He trashed the car.” ***Разломать***
 1. **Uptight** — Stuffy, persnickety, the opposite of relaxed. **Встревоженный**
-1. **Wrap (something) up** — To finish or complete something.
+1. **Wrap (something) up** — To finish or complete something.***Закончить***
 1. **Zonked** — Completely exhausted .Our next post will cover British slang terms that Americans find confusing. Until then, here are some of our favorite American slang words: -*** ошалевший***
 1. **Pants** — CLOTHING RETAILERS TAKE NOTE: The Brits say ‘trousers’ … The American default word for the article of clothing that covers the legs and pelvic region seems pretty general and innocuous to English speakers in the U.S. To the actual English, however, ‘pants’ is the primary word they use for ‘underwear.’ And while American cinema and television typically writes the word ‘knickers’ for underwear into the vocabulary of British characters—that’s probably just for comedic effect since ‘pants’ wouldn’t induce any response—the most common British word for underwear really is ‘pants.’ Americans tend not to notice how often they refer to their so-called pants until someone from the U.K. joins their ranks. Once that happens they begin to notice restrained snickering every time ‘pants’ are referenced in a polite conversation.
 **ОЖЕРТВЫЕ РОЗНИЧНИКИ ПРИНИМАЮТ ЗАМЕЧАНИЕ: Бриты говорят «брюки» ... Американское слово по умолчанию для предмета одежды, которое покрывает ноги и область таза, кажется довольно общим и безобидным для англоговорящих в США. Однако на самом английском языке «брюки», это основное слово, которое они используют для «нижнего белья». И хотя американское кино и телевидение обычно пишут слово «трусики» для нижнего белья в словарь британских персонажей - это, вероятно, только для комедийного эффекта, поскольку «брюки» не будут вызывать никакого ответа - самым распространенным британским словом для нижнего белья действительно является «брюки». Американцы обычно не замечают, как часто они относятся к их так называемым штанам, пока кто-то из Великобритании не присоединится к своим рядам. Как только это происходит, они начинают замечать сдержанное хихиканье каждый раз, когда «штаны» упоминаются в вежливом разговоре.**
