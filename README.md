@@ -7,7 +7,7 @@
 1. **By the skin of (my/your/his/her) teeth** — just barely. - **Еле-еле / едва**
 1. **Creep (n.)** — An unpleasantly weird/strange person. - **Неприятно страннный человек**
 1. **Couch Potato** — A lazy person who spends the bulk of their time engaged in things that can be done while sitting on a couch.-**Ленивый человек, который проводит большую часть времени, занимаясь вещами, которые можно выполнить сидя на диване** - _Лежебока_
-1. **Cram** — To study feverishly before an exam typically done after neglecting to study consistently. **Начинать судорожно готовиться к экзамену в последний день**
+1. **Cram** — To study feverishly before an exam typically done after neglecting to study consistently. **Cудорожно готовиться к экзамену в последний день**
 1. **Crash** — To abruptly fall asleep, or to show up without invitation. - **Внезапно, без приглашения**
 1. **Down to earth** — And adjective for practicality and lack of pretense.**Наречие, обозначающее практичность, отсуствие притворства - Приземленный, не витает в облаках, спуститься на землю** - Приземленный
 1. **Drive up the wall** — To irritate. - **_Раздражать_** - Прижать к стене
