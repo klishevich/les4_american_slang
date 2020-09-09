@@ -1,45 +1,45 @@
 # 40 American Slang Words and Phrases You Need to Know
 
-1. **Feeling  blue; have the blues** — A feeling of depression or sadness - **Скучать или быть в депрессии**
+1. **Feeling blue; have the blues** — A feeling of depression or sadness - **Скучать или быть в депрессии**
 1. **Bail** — Intransitive verb for leaving abruptly.
-	**Непереходный глагол для внезапного ухода**
+   **Непереходный глагол для внезапного ухода**
 1. **A buck** — Slang term for a the American dollar. - **Сленговое выражение для Американского доллора**
 1. **By the skin of (my/your/his/her) teeth** — just barely. - **Еле-еле / едва**
-1. **Creep (n.)** —  An unpleasantly weird/strange person. - **Неприятно страннный человек**
-1. **Couch Potato** — A lazy person who spends the bulk of their time engaged in things that can be done while sitting on a couch.-**Ленивый человек, который проводит большую часть времени, занимаясь вещами, которые можно выполнить сидя на диване** - *Лежебока*
-1. **Cram** — To study feverishly before an exam typically done after neglecting to study consistently.
-1. **Crash** — To abruptly fall  asleep, or to show up without invitation. - **Внезапно, без приглашения**
+1. **Creep (n.)** — An unpleasantly weird/strange person. - **Неприятно страннный человек**
+1. **Couch Potato** — A lazy person who spends the bulk of their time engaged in things that can be done while sitting on a couch.-**Ленивый человек, который проводит большую часть времени, занимаясь вещами, которые можно выполнить сидя на диване** - _Лежебока_
+1. **Cram** — To study feverishly before an exam typically done after neglecting to study consistently. **Начинать судорожно готовиться к экзамену в последний день**
+1. **Crash** — To abruptly fall asleep, or to show up without invitation. - **Внезапно, без приглашения**
 1. **Down to earth** — And adjective for practicality and lack of pretense.**Наречие, обозначающее практичность, отсуствие притворства - Приземленный, не витает в облаках, спуститься на землю** - Приземленный
-1. **Drive up the wall** — To irritate. - ***Раздражать*** - Прижать к стене
-1. **For Real** — A proclamation of honesty. - ***Провозглашение честности*** - Серьезно
-1. **Going Dutch** — When each person, usually in a dating scenario, pays for his/her own meal. - ***Когда каждый человек, обычно в случае свидания, платит сам/сама за свою еду.*** 
+1. **Drive up the wall** — To irritate. - **_Раздражать_** - Прижать к стене
+1. **For Real** — A proclamation of honesty. - **_Провозглашение честности_** - Серьезно
+1. **Going Dutch** — When each person, usually in a dating scenario, pays for his/her own meal. - **_Когда каждый человек, обычно в случае свидания, платит сам/сама за свою еду._**
 1. **The cold shoulder** — A metaphor for deliberately ignoring someone.
 1. **Give a ring** — To call someone on the telephone. **Позвонить по телефону**
 1. **Hyped (adj.)** — A very excited state. - **Возбужденное состояние**
-1. **Hang out** — To casually gather together or spend time with someone in a social manner. ***Тусоваться***
+1. **Hang out** — To casually gather together or spend time with someone in a social manner. **_Тусоваться_**
 1. **Jack up** — An abrupt increase, typically in the price of something.
-**Резкое увеличение, как правило, в цене чего-то.**
-1. **Knock** — To speak negatively, to disparage, to badmouth. ***плохо отзываться***
+   **Резкое увеличение, как правило, в цене чего-то.**
+1. **Knock** — To speak negatively, to disparage, to badmouth. **_плохо отзываться_**
 1. **Lighten up** — To relax and take things too seriously. Typically stated as an appeal to someone who is acting uptight.
-1. **Pass the buck** — To deflect responsibility onto someone else. ***Спихнуть ответственность***
-1. **Piece of cake** — A metaphor to describe something that is easy or effortless . ***Легкотня***
-1. **Pig out** — A metaphor for binge eating.  ***Обжорство***
+1. **Pass the buck** — To deflect responsibility onto someone else. **_Спихнуть ответственность_**
+1. **Piece of cake** — A metaphor to describe something that is easy or effortless . **_Легкотня_**
+1. **Pig out** — A metaphor for binge eating. **_Обжорство_**
 1. **Plead the fifth** — References the fifth amendment to the U.S. Constitution, which allows a witness in court to refuse questions on the grounds that they risk self-incrimination.
 1. **Screw up** — To make a mistake, i.e. mess up. **Допустить ошибку, облажаться, напортачить**
 1. **Sweet** — An adjective that describes something that is good, or nice. **Что-то хорошее или красивое - милый, симпатичный**
 1. **Tight** — An adjective that describes closeness between competitors, i.e. a tight competition.
-1. **Trash** — Can be used as an intransitive verb for destruction. e.g. “He trashed the car.” ***Разломать***
+1. **Trash** — Can be used as an intransitive verb for destruction. e.g. “He trashed the car.” **_Разломать_**
 1. **Uptight** — Stuffy, persnickety, the opposite of relaxed. **Встревоженный**
-1. **Wrap (something) up** — To finish or complete something.***Закончить***
-1. **Zonked** — Completely exhausted .Our next post will cover British slang terms that Americans find confusing. Until then, here are some of our favorite American slang words: -*** ошалевший***
+1. **Wrap (something) up** — To finish or complete something.**_Закончить_**
+1. **Zonked** — Completely exhausted .Our next post will cover British slang terms that Americans find confusing. Until then, here are some of our favorite American slang words: -**_ ошалевший_**
 1. **Pants** — CLOTHING RETAILERS TAKE NOTE: The Brits say ‘trousers’ … The American default word for the article of clothing that covers the legs and pelvic region seems pretty general and innocuous to English speakers in the U.S. To the actual English, however, ‘pants’ is the primary word they use for ‘underwear.’ And while American cinema and television typically writes the word ‘knickers’ for underwear into the vocabulary of British characters—that’s probably just for comedic effect since ‘pants’ wouldn’t induce any response—the most common British word for underwear really is ‘pants.’ Americans tend not to notice how often they refer to their so-called pants until someone from the U.K. joins their ranks. Once that happens they begin to notice restrained snickering every time ‘pants’ are referenced in a polite conversation.
-**ОЖЕРТВЫЕ РОЗНИЧНИКИ ПРИНИМАЮТ ЗАМЕЧАНИЕ: Бриты говорят «брюки» ... Американское слово по умолчанию для предмета одежды, которое покрывает ноги и область таза, кажется довольно общим и безобидным для англоговорящих в США. Однако на самом английском языке «брюки», это основное слово, которое они используют для «нижнего белья». И хотя американское кино и телевидение обычно пишут слово «трусики» для нижнего белья в словарь британских персонажей - это, вероятно, только для комедийного эффекта, поскольку «брюки» не будут вызывать никакого ответа - самым распространенным британским словом для нижнего белья действительно является «брюки». Американцы обычно не замечают, как часто они относятся к их так называемым штанам, пока кто-то из Великобритании не присоединится к своим рядам. Как только это происходит, они начинают замечать сдержанное хихиканье каждый раз, когда «штаны» упоминаются в вежливом разговоре.**
-1. **For the birds** — Imagine how this phrase must sound to someone who doesn’t understand that it refers to something that is substandard in some respect. Is it a bag of seeds or some kind of yard ornament reference? The Brits sometimes use the word ‘bird,’ to refer to women, in the same way Americans use ‘chicks.’ So, maybe it comes off like reference to girlishness. Who knows? ***бесполезный***
+   **ОЖЕРТВЫЕ РОЗНИЧНИКИ ПРИНИМАЮТ ЗАМЕЧАНИЕ: Бриты говорят «брюки» ... Американское слово по умолчанию для предмета одежды, которое покрывает ноги и область таза, кажется довольно общим и безобидным для англоговорящих в США. Однако на самом английском языке «брюки», это основное слово, которое они используют для «нижнего белья». И хотя американское кино и телевидение обычно пишут слово «трусики» для нижнего белья в словарь британских персонажей - это, вероятно, только для комедийного эффекта, поскольку «брюки» не будут вызывать никакого ответа - самым распространенным британским словом для нижнего белья действительно является «брюки». Американцы обычно не замечают, как часто они относятся к их так называемым штанам, пока кто-то из Великобритании не присоединится к своим рядам. Как только это происходит, они начинают замечать сдержанное хихиканье каждый раз, когда «штаны» упоминаются в вежливом разговоре.**
+1. **For the birds** — Imagine how this phrase must sound to someone who doesn’t understand that it refers to something that is substandard in some respect. Is it a bag of seeds or some kind of yard ornament reference? The Brits sometimes use the word ‘bird,’ to refer to women, in the same way Americans use ‘chicks.’ So, maybe it comes off like reference to girlishness. Who knows? **_бесполезный_**
 1. **Bought the farm** — ”I didn’t know he wanted to move to the country,” is how a British person might respond to hearing this phrase. At this point ‘bought the farm,’ is a general reference to untimely death. However, the phrase originates from WWII-era military accidents involving unreliable aircraft crashing into rural European countryside properties resulting in damages for which the U.S. government was responsible to pay, thereby, ‘buying the farm,’ so to speak.
 1. **Jonesing** — To want, crave, or desire something intensely, and its noun form, ‘joneser,’ (a person who wants or craves something intensely), isn’t always apparent even to Americans. The Oxford Dictionary associates this word’s slang usage with Jones Alley in Manhattan, a haven for drug addicts in the 1960s. The unsavory drug culture connotations continue today. However the definition of ‘joneser,’ has been broadened among some circles to include describing a person whose character is found wanting, i.e. lacking, as opposed to someone who simply wants something desperately.
 1. **Take a raincheck** — This is an Americanism that dates back to the 1880s and references the practice of giving baseball game ticketholders a pass to a game that must be rescheduled due to weather. It’s commonly used as a metaphor for postponing or rescheduling a meeting between people to some later date that is more convenient. ДАВАЙ ПОПОЗЖЕ
 1. **Spill the Beans** — British English speakers might pick up on the use of the word ‘spill,’ as a metaphor for divulging. But ‘spill the beans,’ might be obscure enough for them to assume a more specific connotation, which they are not aware of. Needless to say, ‘spill the beans,’ is an American idiom for divulging secret information that dates back to the very early 1900s. Выдать секрет
 1. **Shoot the breeze** — An idiomatic phrase for killing time with idle chit-chat, ‘shoot the breeze probably stems from old-west imagery, either cinematic or anecdotal in origin, in which men with nothing but time and ammunition on their hands shot their guns at no particular target.ТРЕПАТЬСЯ
-1. **John Hancock** — Although obscure associative references are a favorite form of Cockney slang, it’s unlikely that an English person would have any idea who John Hancock was. The reference would escape them. The name John Hancock became synonymous with a person’s signature because his was one of the more flamboyant signatures on The Declaration of Independence.  
+1. **John Hancock** — Although obscure associative references are a favorite form of Cockney slang, it’s unlikely that an English person would have any idea who John Hancock was. The reference would escape them. The name John Hancock became synonymous with a person’s signature because his was one of the more flamboyant signatures on The Declaration of Independence.
 1. **Monday morning quarterback** — Because quarterback is an on-field leadership position played in American football, which the British have no interest in, and because Monday morning references the fact that most NFL games take place on Sundays, this is a doubly obscure metaphor. While American’s understand that the phrase references the practice of criticizing something after-fact-with the advantage of hindsight, an English person would find this phrase totally meaningless.
-1. **Ride Shotgun** — Another phrase taken from Old-West folklore, riding shotgun is a statement of both position and status—a sort of second-in-command support position who works from a preferential vantage. The imagery invoked by the phrase comes from stagecoaches, specifically the person who rode in the seat next to the driver whose job was to fend off any would-be bandits with a shotgun. ***сидеть на переднем пассажирском сиденье автомобиля***
+1. **Ride Shotgun** — Another phrase taken from Old-West folklore, riding shotgun is a statement of both position and status—a sort of second-in-command support position who works from a preferential vantage. The imagery invoked by the phrase comes from stagecoaches, specifically the person who rode in the seat next to the driver whose job was to fend off any would-be bandits with a shotgun. **_сидеть на переднем пассажирском сиденье автомобиля_**
